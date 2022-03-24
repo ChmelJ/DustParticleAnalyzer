@@ -1,0 +1,1 @@
+Software je výsledkem řešení výzkumného projektu NAZV QK1710197 „Optimalizace metod hodnocení ohroženosti území větrnou erozí a návrhů ochranných opatření v zemědělsky intenzivně využívané krajině“ (85 %), QJ1220054 „Vliv změny klimatických faktorů na rozvoj procesů větrné eroze, koncepční řešení opatřeními pozemkových úprav“ (10 %) a výzkumného záměru MZe č. RO0218 (5 %).
